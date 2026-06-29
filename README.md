@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Khacha Ninsri =====================================================================================================================================  Student -------  I am studying in Computer Engineering.  * ✉️  You can contact me at [fook0964891197@gmail.com](mailto:fook0964891197@gmail.com)
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Khacha Ninsri =====================================================================================================================================  Student -------  I am studying in Computer Engineering.  * ✉️  You can contact me at [khacha0981207463@gmail.com](mailto:khacha0981207463@gmail.com)
 
 ### Skills  
 
